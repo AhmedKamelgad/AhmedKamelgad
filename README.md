@@ -1,0 +1,1 @@
+- 👋 Hi, I’m Ahmed Kamel, junior geophysicist interested in data science. reach me at ahmedkamelgadallah@gmail.com.
